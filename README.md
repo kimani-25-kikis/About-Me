@@ -66,7 +66,7 @@ More projects coming soon… ✨
 ---
 
 ### 🌍 Let’s Connect
-📩 Reach me via email: *(Add your preferred email here)*  
+📩 Reach me via email: *(kimaningigijoshua@gmail.com)*  
 
 > 🚀 Always open to learning, collaboration, and new opportunities!
 
